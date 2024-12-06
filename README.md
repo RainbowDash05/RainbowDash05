@@ -8,8 +8,8 @@ Meu nome é Maria Eduarda Soares
 
 ### Você pode entrar em contato comigo:
 
-0000121657778ssp@al.educacao.sp.gov.br
+0000121657778xsp@al.educacao.sp.gov.br
 
-mariadudu.solto1@gmail.com
+mariadudu.souto1@gmail.com
 
 ![](https://media1.tenor.com/m/EnRojaH2AH4AAAAd/confused-meme.gif)
